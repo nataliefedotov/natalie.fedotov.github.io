@@ -1,1 +1,1 @@
-# natalie.fedotov.github.io/home.html
+# natalie.fedotov.github.io
